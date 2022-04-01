@@ -1,0 +1,2 @@
+Telecommunication Engineering student, with a great interest in signal processing and treatment related to the field of astronomy and space. I am also very interested in everything related to data analysis and data processing, such as image processing through the application of Artificial Intelligence.
+I am a person with a great capacity to learn and apply my knowledge to the professional field who is used to working in teams formed by multidisciplinary and multilingual people.
